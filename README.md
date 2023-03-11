@@ -1,0 +1,4 @@
+- Fullname: https://www.facebook.com/phingoc.tung.3
+- Date of birth: 20/04/1997
+- Class: BCVT
+- Address: Km 10, đường Nguyễn Trãi, Quận Hà Đông, Hà Nội
